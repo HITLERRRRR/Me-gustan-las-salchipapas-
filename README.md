@@ -1,1 +1,14 @@
-Hola, me gustan las salchipapas, y no chicos, no soy pasiv-
+Hola, me gustan las salchipapa
+Les voy a meter virus
+MUEJEJEJEJEJEJEJEJ
+
+
+
+
+
+
+
+
+
+
+*-Virus-*
